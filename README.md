@@ -3,5 +3,6 @@ ADS 2C devops aula 2
 
 
 #Alexandre frota
-#Kid Bengala
+#Kid Bengala O MAIOR
 #Nego Catra
+#Wesley Safadão
